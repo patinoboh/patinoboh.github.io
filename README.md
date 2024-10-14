@@ -1,1 +1,1 @@
-# patinoboh.github.io
+# Patinoboh insane stránka
